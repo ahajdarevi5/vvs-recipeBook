@@ -1,1 +1,1 @@
-VVS 2024/25
+VVS 2024/25, group project
